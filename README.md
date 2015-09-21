@@ -1,2 +1,2 @@
 # demo
-This is my space! Enjor!
+This is my space! Enjoy!
